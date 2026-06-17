@@ -24,4 +24,4 @@ The ultimate Chad of all Deployers and Guild Farmers.
 
 ---
 
----**Made by khlndaaa** 🚀
+**Made by khlndaaa** 🚀
